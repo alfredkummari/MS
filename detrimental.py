@@ -3,6 +3,3 @@ uyfoiugliu
 luygouygloiyg
 ujvkujgugkv
 khvkuluyu
-Mantsis
-systamine
-dasain
